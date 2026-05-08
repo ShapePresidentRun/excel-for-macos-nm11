@@ -1,4 +1,4 @@
-
+Enhance Excel for macOS with secure Excel for macOS Helper | data-visualization + 3D-plotting, the #1 helper. Includes data-visualization and 3D-plotting for a smoother and more
 
 
 
